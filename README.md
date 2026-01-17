@@ -1,1 +1,0 @@
-# cit18-learningcontract
